@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yadunand
 - 👀 I’m interested in science
-- 🌱 I’m currently learning in 8th
+- 🌱 I’m currently learning in 9th
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
